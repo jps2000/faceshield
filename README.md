@@ -10,3 +10,5 @@ The shield is made of a laser copy (overhead projector) foil 0.1mm, A4 punched h
 Rubber band 200mm x 4mm
 
 Self adhesive foam strap for forehead protection (head band) optional
+
+REMARK: Please note that this design is open on top to achieve more flexibilty. 
