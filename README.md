@@ -11,4 +11,4 @@ Rubber band 200mm x 4mm
 
 Self adhesive foam strap for forehead protection (head band) optional
 
-REMARK: Please note that this design is open on top to achieve more flexibilty. 
+REMARK: Please note that this design is open on top to achieve more flexibilty. Hence it may protect the environment more than the user as does all the respirators without a micro filter.
