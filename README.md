@@ -10,4 +10,7 @@ Rubber band 200mm x 4mm or -better- a round 5mm rubber ~ 36cm long. The latter c
 
 Self adhesive foam strap for forehead protection (head band) optional
 
-REMARK: Please note that this design is open on top to achieve more flexibilty. Hence it may protect the environment more than the user as does all the respirators without a micro filter.
+There are also stiff face shields proposed they are modifications of a design presented here https://www.tugraz.at/en/institutes/iim/covid-19/
+Thex have  brackets to cover the ends of the foil. One version has holes on top.
+
+REMARK: Please note that some designs are open on top to achieve more flexibilty and vertical air flow. Hence it may protect the environment more than the user as does all the respirators without a micro filter. 
